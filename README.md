@@ -1,1 +1,1 @@
-**🔗 [Visit our main page →](https://roblox.com)**  
+**🔗 [Visit our main page →](https://alterx.cc/)**  
